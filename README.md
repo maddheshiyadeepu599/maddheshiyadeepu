@@ -9,7 +9,7 @@ Email Me 👉 ✉️ **maddheshiyadeepu599@gmail.com** For Collaboration/Project
 - 🤔 **I’m looking for help with:** Your project here
 - 💬 **Ask me about:** Collaboration, Tech Support
 - 📫 **How to reach me:** Enter your email here
-- 😄 **Pronouns:** Imran Sir
+- 😄 **Pronouns:** Deepu Maddheshiya
 - ⚡ **Fun fact:** I Love Tech and Tech Love Me
 
 ## 🌐 Socials:
